@@ -4,32 +4,35 @@ import styles from './styles.module.css';
 
 const FeatureList = [
   {
-    title: 'Easy to Use',
-    Svg: require('@site/static/img/undraw_docusaurus_mountain.svg').default,
+    title: 'How to Alpha',
+    Svg: require('@site/static/img/lion.svg').default,
     description: (
       <>
-        Docusaurus was designed from the ground up to be easily installed and
-        used to get your website up and running quickly.
+        There is a trend, that the masculinity is not good anymore.
+        Lets face it with style and bring it back!
+        Check the guide on how to navigate in the current world as an male.
       </>
     ),
   },
   {
-    title: 'Focus on What Matters',
-    Svg: require('@site/static/img/undraw_docusaurus_tree.svg').default,
+    title: 'Relationships',
+    Svg: require('@site/static/img/relationships.svg').default,
     description: (
       <>
-        Docusaurus lets you focus on your docs, and we&apos;ll do the chores. Go
-        ahead and move your docs into the <code>docs</code> directory.
+        As an Alpha and positive masculine man, you have to know what to 
+        search in your partner and what they should search in you .
+        Learn how to be a better partner and how to change the relationships around you.
       </>
     ),
   },
   {
-    title: 'Powered by React',
-    Svg: require('@site/static/img/undraw_docusaurus_react.svg').default,
+    title: 'The wisdom from books',
+    Svg: require('@site/static/img/books.svg').default,
     description: (
       <>
-        Extend or customize your website layout by reusing React. Docusaurus can
-        be extended while reusing the same header and footer.
+        You can gather a lot from reading the books. You can find here,
+        what I find useful and you can too. Recomendation for the books 
+        and their main point.
       </>
     ),
   },

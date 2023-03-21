@@ -4,44 +4,29 @@ sidebar_position: 1
 
 # About
 
-Let's discover **Docusaurus in less than 5 minutes**.
+Hi, I'm glad that you are here. Let's talk about what this blog is suppose to do 
+for you. It is here to help you navigate through life as best, as you possibly can.
+It takes some knowledge and tries to put it into your head.
 
-## Getting Started
+You can ignore what you read here, laugh or hate, but the blog doesn't care.
+I don't care. I'm writting this with best intentions and I will tell you more about them.
 
-Get started by **creating a new site**.
+## Mission
 
-Or **try Docusaurus immediately** with **[docusaurus.new](https://docusaurus.new)**.
+When you are talking about the mission, you should ask those questions
 
-### What you'll need
+1. What you do now? <strong>I'm writting this blog to make myself write something and think about stuff.</strong>
+2. From whom? <strong>From myself, nobody is forcing me to do this. I want to do it.</strong>
+3. How you do it? <strong>Starting small with a blog, that everybody can ignore.</strong>
+4. What this achieves? <strong>It will stay here and remind me to do something and potentionaly it will help the others.</strong>
 
-- [Node.js](https://nodejs.org/en/download/) version 16.14 or above:
-  - When installing Node.js, you are recommended to check all checkboxes related to dependencies.
+## Vision
 
-## Generate a new site
+1. Where you're going? <strong>I'm going to educate myself and the people that want to be educated as well.</strong>
+2. What your vision should ultimately achieve? <strong>The mission should reach as many people as it can and help them and me to live the 
+best potential life as we can.</strong>
 
-Generate a new Docusaurus site using the **classic template**.
+## Values
 
-The classic template will automatically be added to your project after you run the command:
-
-```bash
-npm init docusaurus@latest my-website classic
-```
-
-You can type this command into Command Prompt, Powershell, Terminal, or any other integrated terminal of your code editor.
-
-The command also installs all necessary dependencies you need to run Docusaurus.
-
-## Start your site
-
-Run the development server:
-
-```bash
-cd my-website
-npm run start
-```
-
-The `cd` command changes the directory you're working with. In order to work with your newly created Docusaurus site, you'll need to navigate the terminal there.
-
-The `npm run start` command builds your website locally and serves it through a development server, ready for you to view at http://localhost:3000/.
-
-Open `docs/intro.md` (this page) and edit some lines: the site **reloads automatically** and displays your changes.
+1. What you stand for? <strong>I stand for a good (not nice) man, I value family, positive masculinity, dignity, truth and many others that we 
+will be introducing later.</strong>
