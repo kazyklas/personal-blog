@@ -10,9 +10,6 @@ jobs:
   generate-static-pages:
     runs-on: ubuntu-22.04
     name: Build static pages
-    defaults:
-      run:
-        working-directory: ./my-website
     steps:
       - uses: actions/checkout@v2
       - run: yarn install
@@ -28,9 +25,6 @@ jobs:
     needs: generate-static-pages
     runs-on: ubuntu-22.04
     name: Build and Deploy Job
-    defaults:
-      run:
-        working-directory: ./my-website
     steps:
       - uses: actions/download-artifact@v3
         with:
