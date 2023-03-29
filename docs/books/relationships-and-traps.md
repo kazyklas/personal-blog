@@ -7,7 +7,7 @@ sidebar_position: 3
 Book is from Honza Vojtko, it is his second book and it was 
 released after the podcast series Vztahy a pasti.
 
-## Boring
+## Boredom
 
 The relationship gets boring in the time. That is a myth that is not true.
 You may say, that in the begginng of the relationships, you felt the butterflies,
@@ -65,7 +65,34 @@ hour talk if it is a bigger issue.
 
 ## What to ask
 
+1. Did your desire changed somehow in time?
+2. Is it still the same as in the beggining?
+3. Is your desire higher or lower then your spouse?
+4. Can you talk about it with your partner? (Couples that can talk about sex tend to have better sex.)
+5. How does the social networks afects your perception on sex?
+
 ## Relationship as a terapeutic coach
+
+This trap is about using your partner as a terapeut. You don't have to do it on 
+purpose, but it will figure itself out. You will tell them, that they understand 
+you better and in the edge cases. Some couples send the other person in a relationship
+to the terapeut to solve their problems for them.
+
+You may also tend to find the reason of the partners feelings, where did they 
+come from? You may automaticaly analyse the person and not listen to what he says
+or you can not enjoy the moment and live the emotions as well.
+
+In the relationship, there is a right on having the secrets. It is on you 
+if you want to tell it to your partner. Do forget on using your partner to 
+throw all your emotions on. None can handle it in a long term relationship to 
+be your pillow for emotions. Don't be afraid to advise to search the prefesional for this.
+
+## What to ask
+
+1. Is your partner the first one, that you contact when something wrong happens to you, and all the good things you tell to someone else?
+2. Are you talking with your partner about the negative and the positive things?
+3. Do you expect some resolution from your partner?
+4. Are you mad if the partner is not properly listening to you? 
 
 ## Parents instead of partners
 
