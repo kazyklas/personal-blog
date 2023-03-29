@@ -1,0 +1,46 @@
+name: Publish into Azure Static Web Apps
+
+on:
+  push:
+    branches:
+      - 'main'
+  workflow_dispatch:
+
+jobs:
+  generate-static-pages:
+    runs-on: ubuntu-22.04
+    name: Build static pages
+    defaults:
+      run:
+        working-directory: ./my-website
+    steps:
+      - uses: actions/checkout@v2
+      - run: yarn install
+      - name: Build website
+        continue-on-error: true
+        run: yarn build
+      - uses: actions/upload-artifact@v3
+        with:
+          name: build-pages
+          path: ./build
+
+  build-and-deploy:
+    needs: generate-static-pages
+    runs-on: ubuntu-22.04
+    name: Build and Deploy Job
+    defaults:
+      run:
+        working-directory: ./my-website
+    steps:
+      - uses: actions/download-artifact@v3
+        with:
+          name: build-pages
+      - name: Build And Deploy
+        uses: Azure/static-web-apps-deploy@v1
+        with:
+          azure_static_web_apps_api_token: ${{ secrets.AZURE_STATIC_WEB_APPS_API_TOKEN }}
+          action: "upload"
+          # For more information regarding Static Web App workflow configurations, please visit: https://aka.ms/swaworkflowconfig
+          app_location: "/" # App source code path (root of your index.html)
+          skip_app_build: true # Skip building the app
+          skip_api_build: true # Skip building the app
