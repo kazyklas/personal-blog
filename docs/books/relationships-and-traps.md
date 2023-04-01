@@ -96,13 +96,126 @@ be your pillow for emotions. Don't be afraid to advise to search the prefesional
 
 ## Parents instead of partners
 
+The first shock for the relationship is the baby. There might be another shocks,
+but none with such a damage as a kid. The partners tend to focus on the little ones
+and they completely forgets about the other person in the relationship.
+The relationship is work and after a kid, double that work.
+
+If we will focus on beeing a parent, we will lose ourselves. We have to constantly work
+on the intimate relationship that we have. Partners can't start tolerating each other.
+They will create a distance between themselves and it might not be repairable.
+
+Don't just share what pempers you need to buy. Don't just be parent.
+Share love, send some pictures, talk about the love between you and remeber to work on it.
+
+Be also prepared that we have some urge to project our dreams and love to the baby.
+It can couse the damage to the kid and also you and your partner.
+
+### What to ask
+
+1. Are you not talking about something, cus you are tired?
+2. When was the last time you spend together, when the kid fell asleep?
+3. Do you belive that the marriage is about creating children?
+   
+   
 ## Always at work
+
+Everybody needs money, so we are going to work. This work can be great, can 
+motivate us, but it can distract us from our relationship. It also can hide some 
+problems that we are facing and we hide from them there.
+
+One study showed that staying late in work doesn't have to be an issue in a relationship.
+We have to communicate it, that this is something that is fulfiling us and we 
+have a purpose there. If we do it properly and we find the right balance, the relationship 
+can get even stronger.
+
+The trick is in the communication. We have to remind each other that the work is 
+something important for us. Once mentioned doesn't mean that much. We also have to 
+react acordingly if the spouse is saying, that the work is affecting the relationship.
+
+The necesity is to plan your week ahead. If you have tight schedule, take that few minutes
+before the work week to plan ahead. Plan the time with your partner. You can even plan
+the sex. Yes we want some spontaneity, but planning is not killer, it can create 
+anticipation as well.
+
+### What to ask
+
+1. When was the last time we texted or called our partner how they are doing?
+2. On a scale, how does it iritate you that your partner is working nonstop?
+3. How much guilt are you feeling that you are working too much?
+4. Do you enjoy the work, or do you work, because you need to?
 
 ## Social networks
 
+They are a huge thing in our time. They can cause a lot of troubles, but it is not
+their mistake, it is ours and how we are using them. A lot of people are on the 
+social network and for a lot of time. If you want to have a serious relationship
+you have to focus on it with full attention.
+
+We keep on this media a lot of connections. If you add a photo, and someone from the 
+past or even someone you don't even know reacts. You can keep this person somehow 
+on the leash and you can have a backup if the relationship will not work out. 
+It doesn't have to be now, or a week, but it can happen.
+
+If I would bring up some numbers, and thats that we touch our phone 2600 times a day!
+We can spend those 2600 touches on our partner, that would be that 15 minutes each day
+that will make a huge difference.
+
+There are a lot of profiles that will change your perception on your relationship.
+Why are they laughing all the time, they don't have any issues, and so on...
+Everybody has issues, you don't have to put yourself into this ilusion trap.
+Statisticaly the partners, that are sharing a lot pictures whit each other, are not
+actually that happy in a relationship. But the ones, that have the other one on the 
+profile pictures tend to have stronger relationships.
+
+### What to ask
+
+1. How much time are you spending on social media?
+2. When was the last time that you ate with your partner without looking into the phone? 
+3. Did you argue about the social media? 
+4. Do you like yourself more thaks to the social medias?
+
 ## The cursed romance
 
+The love on the first sign is not a myth. But a huge computation done by our subconscious.
+What the means? If we like somebody, if we are romanticaly attracted to them, we are most 
+likely have different genes so our potential children have more chances on surviving.
+So the nature created this process and when you seem someone with the set of different values.
+You are in a trap, the brain starts to releas the soup of hormones and you are done (for a while).
+
+All of how we are looking at the relationship has to do with Romantism. This shaped our 
+perceptions and what we are expecting from the relationship. The love till the end of time,
+everything fine after we find the right one and so on. Before the marrige was here to 
+merge the properties of two families and to create children.
+
+We have to have in mind that we are chosing the partner just on our emotions and feelings.
+This can lead to not that great relationship in a long term as we get to know the other one better.
+In the firt stages we are in love with just our imagination of a person. We have to take time 
+to get to know each other, don't fall into a trap of an early relationship with the vision 
+of the access to sex. 
+
+The other thing that we need to avoid is, that there is no, once more, there is none template on
+how the relationship should look like, or how we should feel. Every relationship is different 
+and the feelings that we have are different as well. We don't have to have the butterflies 
+when we see each other on the first sight, we just don't have to smell bad to each other.
+
+And last few points. The love and sex are not the same. One can lead to another and one is 
+not the prerequisity for the other. For someone can be, and that is OK as well. Talks about 
+money and property is not a betrayel of love, but the necesity we need to go through. When 
+we realize that we all are just people that are doing mistakes, we will create better 
+relationships. So don't forget to learn how to communicate and how to respect each other.
+
+### What to ask
+
+1. Does your partenr understands your feelings?
+2. What is it that you expect from your partner? 
+3. How often do you think, if this is how the relationship should be and how it should feel?
+4. Do you avoid tough conversations, because you don't think that they should be included in a relationship?
+5. Do you believe in destiny?
+
 ## Parents
+
+
 
 ## Always positive
 
