@@ -282,9 +282,50 @@ doesn't have a simple solutions.
 
 ## The raltionship itself
 
+The "toxic" relationship. I would rather say, not healthy relationship are created when 
+at least one of the relationship needs are not fulfilled. One of the partners feels 
+the threat or even a danger from the other one. Most likely, the relationship is 
+suffering from bad communication or continuous conflicts that are not resolved or healed properly.
+We can also find the lack of a true love and emotional intimacy.
+
+The eight things that we are searching in a relationsihps:
+1. Safety: We have to know that the relationship is a safe space to be in and to grow in. That we can feel protected and respected. 
+2. Appreciation: We need to be apprecieated for what we are, with all our insecurities. We have to believe and expect, that everything the other does has a purpose and meaning for him and we need to try to understand the meaning.
+3. Acceptance: We have to be such a partner, that the other one can use as a shield and can care about us. We also need to feel cared about and respected.
+4. Reciprocity: We can understand the things that the other ones is living. That means that if the other one is having a problem with some situation in life, we already know that situation and we can relate to each other. Great example is a common trauma.
+5. Selfdefinition: We have to define ourselves in the realtionship. We have to have space to be ourselves, do what we love and we have to be different. This difference has to be accepted and loved.
+6. Couse reaction: We have to have the ability to change the otherones perspective and thoughts. Not manipulative way. We have to see and know that we can change the perspective and that we can cause some emotions. We also have to have the ability to spot the difference after our actions.
+7. Show of love: There is 5 languages of love. Everyone is receiving and giving the love differently. Hugs, gifts, words. We have to catch such a attempt to reach for our heart and we have to learn to give it in a different way.
+8. Initiative: Both people in a relationship has to show initiativity for something. If someone is feeling that just him is doing all the things, he will burn out. Try to initiate anything from time to time.
+
+We have to take care of our relationship and if we can find that four riders of apocalypse is present.
+1. Critics,
+2. contempt,
+3. defense,
+4. disconection.
+
+When those are present, we are likely to be separated. It is OK if we find them in an argument from
+time to time. Nobody is able to hold himself when we pull the right strings which the other one 
+definitely knows. If we realize that they are present, stop, take a minute, search which need is not 
+fullfilled and work on that.
+
+### What to ask
+
+1. Do you feel lonely in your current relationship?
+2. Did you felt this in the previous relationsihips?
+3. Do you have fear that your partner will leave you?
+4. What is the tabu in your relationship?
 
 
 ## Constant therapy
+
+This is about the therapy itself. We tend to tell the spouse to go visit a therapy.
+It seems that in the first few sessions it is better but after a few years, we are still there.
+We have to find maybe someone else or stop, because it is not bringing anything positive.
+
+We alse have to look into our relationship. Are visiting therapy, to just tell 
+someone that we pay about our feelings so we don't have to tell them at home? 
+It can be effective, but not in the long term.
 
 
 
