@@ -215,11 +215,74 @@ relationships. So don't forget to learn how to communicate and how to respect ea
 
 ## Parents
 
+Parents, without the doubt has enormous impact on our relationships in the adult life.
+This might be good, but not always. As I like to say, you can not fuck up the kid. It is up to us
+to find what patterns are coded in our heads and is up to us to "upgrade" ourselves to 
+better people. So the important thing to do is to determine, where did my communication and 
+emotional patterns came from. Identify it, communicate them and get rid of those that you 
+don't want. 
 
+We will disscuss two archetypes. The arguing one and the passive aggresive one. Both
+are not great. One needs to get more constructive with arguing to bring something positive
+and the other one needs to learn how to express his emotions. Create a safe bridge in your 
+relationship where you can communicate your emotions within a safe space.
+
+Figure out what you are searching in a partner. Is it something that will compensate your 
+areas, where you are not confident enough? I once also heard: "Create a list of what you 
+are searching in your partner and become that person."
+
+You have to watch on a trap in your relationship, that you might have a big connection 
+to someone in your family. This may cause a weak point in the connection with your partner.
+Don't include your parents in an arguments. Don't allow your parents to tell you how your 
+relationship should look like. It can lead to serious problems. Do not be afraid to tell
+that the connection is causing this and that and you are not comfortable with it.
+The relationship is created by two people and no one should dictate how you should have it.
+
+There was introduced a great concept of how we should treat our kids. When they are young,
+keep them close, hug them, protect them. And as they grow older, releas the hug a bit. Let 
+them get their burns and welcome them, if they need help. And as they become adult, wait
+with the hands spread. Appreciate the time when they come to you. Hug them and then 
+let them build their life and family. It will hurt, but it is your job and you have to be strong.
+
+### What to ask
+
+1. How often do you take the advice from your parents?
+2. When was the last time you attacked your partner that they behave as their parents?
+3. Do you talk about the intimate life with your parents?
+4. Why and how often are you afraid what they will tell about your partenr?
 
 ## Always positive
 
+In a recent studies were found out, that we argue mostly because of this three reasons:
+1. Haughtiness: This means that our partner if making fools of us. Dehonests us or making fun from us. He thinks that he is something better.
+2. Possessiveness: Too much jelausy or dependance. This can be shown if our partner wants too much attention or is too jelaus.
+3. Rejection: We feel like our partner is rejecting us. He doesn't respond to our emotions and feelings and lets us to deal with them. Or we can have the feeling that if we would not write, he would definitely not write as well.
+
+Even if we think that the conflicts in the relationship are not healthy, they are.
+So don't be afraid to say that we need to talk about our relationship. It is even a good practice to
+talk about it on some monthly basis. Create a list of things that you need to discuss with your spouse
+and talk about it.
+
+You have the right on your feelings and you have the right to share them. Find a safe way how to do that.
+It is OK to feel not well, not loved, too criticised or to feel that you are not going where you should
+and where you agreed that you will go. Open this topic. Do not be afraid. Learn how to have
+unconditional positive respect.
+
+Don't forget that each individual sees the life through his eyes, his emotions and his experience.
+There is no truth in the relationship, just a different view on that situation. And the hard problems
+doesn't have a simple solutions. 
+
+### What to ask
+
+1. What are the topics that you argue about? 
+2. Do you think that arguing is good for a relationship?
+3. Is there some space where it is better for you to argue? 
+4. Are you afraid of arguments because you are afraid of the break-up? 
+
+
 ## The raltionship itself
+
+
 
 ## Constant therapy
 
