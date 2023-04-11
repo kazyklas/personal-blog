@@ -8,323 +8,191 @@ The book is from Honza Vojtko, it is his second book and it was
 released after the podcast series Vztahy a pasti.
 
 ## Boredom
+The belief that relationships inevitably become boring over time is a myth that is not true. You may have felt the excitement and butterflies at the beginning of the relationship, and thought that everything would be perfect and fulfilling forever. However, this initial rush is due to chemistry and pure instincts that our subconscious mind creates for us. A large amount of dopamine and serotonin are released for a few months, and then the hormones get back in balance.
 
-The relationship gets boring at the time. That is a myth that is not true.
-You may say, that at the beginning of the relationship, you felt the butterflies,
-you thought that all will be good and you will be fulfilled till the end of times.
+In reality, you don't have to feel bored at all. Boredom usually arises from three types of situations:
 
-That is because of chemistry. Just pure instincts that our subconscious does 
-for us. A huge amount of dopamine and serotonin is released for a few months.
-Then the hormones get into a line again.
+1. When you are forbidden from doing what you want.
+1. When you are forced to do something that you don't want to do.
+1. When you have a feeling of boredom, but you can't figure out why.
 
-All of the feelings you don't have to feel and you are most likely not feeling bored at all.
-There are three types of a situation when you feel bored:
-1. If you are forbidden from doing what you want.
-2. If you are forced to do something that you don't want
-3. Sometimes is just a feeling that you can find out, why you have it.
 
-All of this is coming from a lack of purpose. When you are a guy,
-this is a huge issue. You should have a purpose, from small to great, but some.
-Start with some hobbies, you will feel better. This is also true for  
-females. If you are bored in a relationship, find out why are you feeling like that.
-The other person is not there to satisfy your lack of purpose but to help you 
-find one and stick to it. Find your purpose together and work on it as a team.
+All of these situations stem from a lack of purpose. This is a particularly significant issue for men, as they need to have a purpose, however small or great it may be. Start with some hobbies, and you'll feel better. The same is true for women. If you're bored in a relationship, try to find out why you're feeling that way. Your partner is not there to satisfy your lack of purpose, but to help you find one and work on it together as a team.
 
-### What to Ask
-
-1. Can I do something with my partner?
-2. Do I let him inspire me?
-3. Can I do the new activity, and pursue the purpose alone?
-4. Can I share my achievements with my partner?
-5. Why do I need to do something new? 
-   
+### Questions to Ask Yourself
+1. Can I do something together with my partner?
+1. Do I let my partner inspire me?
+1. Can I pursue a new activity and purpose alone?
+1. Can I share my achievements with my partner?
+1. Why do I need to do something new?
 
 ## Need for sex
 
-Sexuality is a huge question, but why? Is it a question that we ask or is  
-society putting a value to it? You will read that if you want a healthy relationship 
-you will have to have sex twice a week. This is a huge mistake. Every person has it
-differently. 
+Sexuality is a complex topic, and the question is, why? Is it a question that we ask ourselves, or is society putting a value on it? You may have heard that having sex twice a week is essential for a healthy relationship, but this is a huge mistake. Every person's needs and desires are different.
 
-The main goal is to have intimacy that suits both of you. It can be holding hands,
-kissing, or planning and having a quality time with some touches. Not everyone needs to
-penetrate or be penetrated to have a good relationship if he doesn't want to.
+The main goal should be to have intimacy that suits both partners. It can be holding hands, kissing, or spending quality time together with some physical touch. Not everyone needs to engage in penetrative sex to have a good relationship if they don't want to.
 
-Someone will likely want sex more in a relationship. It is not an issue,
-if you will not use it as a weapon, as you can manipulate it with the one thing that 
-the other one desire. 
+It's normal for one partner to want sex more than the other. This is not a problem as long as it's not used as a weapon or a way to manipulate the other person into doing something they don't want to do.
 
-There will also be ups and down in the long run. In this time, be open, and look for help 
-from your spouse, you are going through it together. If it will be for a longer period, that someone doesn't want to have sex. Look deeper, it can be from some 
-physical state or a state of mind that needs to be cured.
+There will be ups and downs in the long run. During these times, be open and seek help from your partner. If someone doesn't want to have sex for an extended period, it's important to look deeper and seek help to address any underlying physical or mental health issues.
 
-Remember that if you do not feel satisfied, talk about it, it can be not pleasant and it can 
-be hurtful. There might be even more talks about it, cus you will not solve it through one
-hour of talk if it is a bigger issue.
+Remember that if you don't feel satisfied, it's important to talk about it. It may not be pleasant or easy, but avoiding the issue will only lead to more problems in the long run.
 
-## What to ask
+### Questions to Ask Yourself
 
-1. Did your desire change somehow in time?
-2. Is it still the same as in the beginning?
-3. Is your desire higher or lower than your spouse's?
-4. Can you talk about it with your partner? (Couples that can talk about sex tend to have better sex.)
-5. How do social networks affect your perception of sex?
+1. Has your desire for sex changed over time?
+1. Is it still the same as it was at the beginning of the relationship?
+1. Is your desire higher or lower than your partner's?
+1. Can you talk about sex openly with your partner? (Couples who can talk about sex tend to have better sexual experiences.)
+1. How do social networks influence your perception of sex?
 
 ## Relationship as a therapeutic coach
 
-This trap is about using your partner as a therapist. You don't have to do it on 
-purpose, but it will figure itself out. You will tell them, that they understand 
-you better and in the edge cases. Some couples send the other person in a relationship
-to the therapist to solve their problems for them.
+This trap is about using your partner as a therapist, which can happen unintentionally. You may feel like they understand you better, and in some extreme cases, some couples may send their partner to a therapist to solve their problems for them.
 
-You may also tend to find the reason for the partner's feelings, where did they 
-come from? You may automatically analyze the person and not listen to what he says
-or you can not enjoy the moment and live the emotions as well.
+You may also find yourself analyzing your partner's emotions and trying to figure out where they come from instead of simply listening and experiencing the moment with them.
 
-In a relationship, there is a right on having secrets. It is on you 
-if you want to tell your partner. Do forget on using your partner to 
-throw all your emotions on. None can handle it in a long-term relationship to 
-be your pillow for emotions. Don't be afraid to advise searching for a professional for this.
+It's important to remember that in a relationship, each person has the right to keep secrets if they choose to do so. Don't use your partner as a dumping ground for all your emotions, as it's not sustainable in the long run. It's okay to seek professional help if needed.
 
-## What to ask
+### What to ask?
 
-1. Is your partner the first one, that you contact when something wrong happens to you, and all the good things you tell to someone else?
-2. Are you talking with your partner about the negative and the positive things?
-3. Do you expect some resolution from your partner?
-4. Are you mad if the partner is not properly listening to you? 
+1. Do you rely solely on your partner to share both positive and negative things that happen to you, or do you talk to other people as well?
+1. Do you expect your partner to always provide a resolution to your problems?
+1. Are you mindful of not overwhelming your partner with your emotions?
+1. Are you open to seeking professional help if needed?
 
 ## Parents instead of partners
 
-The first shock for the relationship is the baby. There might be another shock,
-but none with such damage as a kid. The partners tend to focus on the little ones
-and they completely forget about the other person in the relationship.
-The relationship is work and after a kid, double that work.
+The first shock for a relationship is having a baby. There might be other challenges, but none with as much impact as having a child. Partners often focus on the child and forget about each other. Relationships require work, and after having a child, that work doubles.
 
-If we will focus on being a parent, we will lose ourselves. We have to constantly work
-on the intimate relationship that we have. Partners can't start tolerating each other.
-They will create a distance between themselves and it might not be repairable.
+If you focus solely on being a parent, you can lose sight of who you are. You must continually work on the intimacy in your relationship. Partners cannot just tolerate each other. This can create a distance between them that may be irreparable.
 
-Don't just share what pampers you need to buy. Don't just be a parent.
-Share love, send some pictures, talk about the love between you, and remember to work on it.
+Don't only talk about practical parenting matters, such as what diapers to buy. Don't just be a parent. Share your love, send each other pictures, talk about your feelings, and remember to work on your relationship.
 
-Be also prepared that have some urge to project our dreams and love to the baby.
-It can cause damage to the kid and also to you and your partner.
+Also, be aware that there may be a desire to project your dreams and love onto the baby. This can cause damage to the child and also to you and your partner.
 
-### What to ask
-
-1. Are you not talking about something, cus you are tired?
-2. When was the last time you spent together when the kid fell asleep?
-3. Do you believe that marriage is about creating children?
+### What to ask?
+1. Are you avoiding talking about something because you're tired?
+1. When was the last time you spent time together after the baby fell asleep?
+1. Do you believe that marriage is primarily about having children?
    
    
 ## Always at work
 
-Everybody needs money, so we are going to work. This work can be great and can 
-motivate us, but it can distract us from our relationship. It also can hide some 
-problems that we are facing and hide from them there.
+Everyone needs money, so we go to work. This can be rewarding and motivating, but it can also distract us from our relationship and mask some of the problems we face.
 
-One study showed that staying late at work doesn't have to be an issue in a relationship.
-We have to communicate, that this is something that is fulfilling us and we 
-have a purpose there. If we do it properly and we find the right balance, the relationship 
-can get even stronger.
+One study suggests that working late doesn't have to harm a relationship if we communicate well and find the right balance. We need to let each other know that work is important to us and react constructively when our partner says work is affecting the relationship.
 
-The trick is in communication. We have to remind each other that work is 
-something important to us. Once mentioned doesn't mean that much. We also have to 
-react accordingly if the spouse is saying, that the work is affecting the relationship.
+The key is to plan our week. Even if our schedule is tight, we can take a few minutes before the work week to plan our time with our partner, including intimacy. Planning doesn't have to kill spontaneity and can actually create anticipation.
 
-The necessity is to plan your week. If you have a tight schedule, take that few minutes
-before the work week to plan. Plan the time with your partner. You can even plan
-the sex. Yes we want some spontaneity, but planning is not killer, it can create 
-anticipation as well.
+### What to ask?
 
-### What to ask
-
-1. When was the last time we texted or called our partner how they are doing?
-2. On a scale, how does it irritate you that your partner is working nonstop?
-3. How much guilt are you feeling that you are working too much?
-4. Do you enjoy the work, or do you work, because you need to?
+1. When was the last time we checked in with our partner via text or call?
+1. How much does it bother you that your partner works a lot?
+1. Do you feel guilty about working too much?
+1. Do you enjoy your work or do you work mainly out of necessity?
 
 ## Social networks
 
-They are a huge thing in our time. They can cause a lot of trouble, but it is not
-their mistake, it is ours and how we are using them. A lot of people are on  
-social networks for a lot of time. If you want to have a serious relationship
-you have to focus on it with full attention.
+They are a significant phenomenon in our time. While they can cause a lot of trouble, it is not their fault; it is ours and how we use them. Many people spend a lot of time on social networks, but if you want to have a serious relationship, you need to focus on it with full attention.
 
-We keep on this media a lot of connections. If you add a photo, someone from the 
-past or even someone you don't even know reacts. You can keep this person somehow 
-on the leash and you can have a backup if the relationship will not work out. 
-It doesn't have to be now, or a week, but it can happen.
+Social media keeps us connected to a lot of people. If you add a photo, someone from the past or even someone you don't know may react. You might keep this person on the back burner and have a backup plan if the relationship doesn't work out. It may not happen immediately, but it could occur eventually.
 
-If I would bring up some numbers, that's that we touch our phones 2600 times a day!
-We can spend those 2600 touches on our partner, that would be that 15 minutes each day
-that will make a huge difference.
+To give you an idea, statistics show that we touch our phones 2600 times a day! If we spent those 2600 touches on our partner, it would equate to 15 minutes each day, which could make a huge difference.
 
-There are a lot of profiles that will change your perception of your relationship.
-Why are they laughing all the time, they don't have any issues, and so on...
-Everybody has issues, you don't have to put yourself into this illusion trap.
-Statistically, partners, that are sharing a lot of pictures whit each other, are not
-actually that happy in a relationship. But the ones, that have the other one on the 
-profile pictures tend to have stronger relationships.
+Many profiles can distort your perception of your relationship. You might wonder why they are always laughing and have no issues. However, everyone has problems, and we shouldn't fall into the trap of illusions. Interestingly, partners who share a lot of pictures with each other are not necessarily happy in their relationship. But those who have their partners in their profile pictures tend to have stronger relationships.
 
-### What to ask
+### Questions to ask
 
-1. How much time are you spending on social media?
-2. When was the last time that you ate with your partner without looking at the phone? 
-3. Did you argue about social media? 
-4. Do you like yourself more thanks to social media?
+1. How much time do you spend on social media?
+1. When was the last time you had a meal with your partner without looking at your phone?
+1. Have you ever argued about social media?
+1. Do you think social media has improved your self-esteem?
 
 ## The cursed romance
 
-The love on the first sign is not a myth. But a huge computation is done by our subconscious.
-What does this mean? If we like somebody, if we are romantically attracted to them, we most 
-likely have different genes so our potential children have more chances of surviving.
-So nature created this process and when you see someone with a set of different values.
-You are in a trap, the brain starts to release the soup of hormones and you are done (for a while).
+The love at first sight is not a myth, but it is the result of a huge computation done by our subconscious mind. What this means is that when we are romantically attracted to someone, it is because we most likely have different genes, which could increase the chances of survival for our potential children. Nature has created this process and when we see someone with a set of different values, our brain releases a soup of hormones and we become attracted to them (at least for a while).
 
-All of how we are looking at the relationship has to do with romanticism. This shaped our 
-perceptions and what we are expecting from the relationship. The love till the end of time,
-everything is fine after we find the right one, and so on. Before marriage was here to 
-merge the properties of two families and to create children.
+Our perception of relationships has largely been shaped by romanticism and what we expect from a partner. We often imagine that love lasts forever and everything will be perfect once we find "the one." However, before the concept of marriage was introduced, it was mainly used to merge the properties of two families and to create children.
 
-We have to have in mind that we are choosing the partner just on our emotions and feelings.
-This can lead to not having that great relationship in the long term as we get to know the other one better.
-In the first stages, we are in love with just our imagination of a person. We have to take time 
-to get to know each other, don't fall into a trap of an early relationship with the vision 
-of access to sex. 
+It is important to remember that when we choose a partner based on our emotions and feelings, it may not lead to a great long-term relationship as we get to know each other better. In the initial stages, we are often in love with our own imagination of the person. Therefore, we need to take time to get to know each other and avoid falling into the trap of an early relationship with the sole vision of having access to sex.
 
-The other thing that we need to avoid is, that there is no, once more, there is no template for
-how the relationship should look, or how we should feel. Every relationship is different 
-and the feelings that we have are different as well. We don't have to have the butterflies 
-when we see each other at the first sight, we just don't have to smell bad to each other.
+Another thing we should avoid is thinking that there is a template for how a relationship should look or feel. Every relationship is unique and the feelings we have for each other are different. We do not need to have butterflies when we first see each other, but we also should not find each other repulsive.
 
-And the last few points. Love and sex are not the same. One can lead to another and one is 
-not the prerequisite for the other. Someone can be, and that is OK as well. Talks about 
-money and property are not a betrayal of love, but a necessity we need to go through. When 
-we realize that we all are just people that are doing mistakes, we will create better 
-relationships. So don't forget to learn how to communicate and how to respect each other.
+Lastly, it is important to note that love and sex are not the same things. One can lead to another, but they are not a prerequisite for each other. It is also okay if someone does not desire sex. Talking about money and property is not a betrayal of love, but a necessity that we need to go through. When we realize that we are all just human beings who make mistakes, we can create better relationships. Therefore, do not forget to learn how to communicate and respect each other.
 
 ### What to ask
 
-1. Does your partner understands your feelings?
-2. What is it that you expect from your partner? 
-3. How often do you think, if this is how the relationship should be and how it should feel?
-4. Do you avoid tough conversations, because you don't think that they should be included in a relationship?
-5. Do you believe in destiny?
+1. Does your partner understand your feelings?
+1. What do you expect from your partner?
+1. How often do you reflect on whether this is how the relationship should be and feel?
+1. Do you avoid tough conversations because you do not think they should be included in a relationship?
+1. Do you believe in destiny?
 
 ## Parents
 
-Parents, without a doubt, have an enormous impact on our relationships in adult life.
-This might be good, but not always. As I like to say, you can not fuck up the kid. It is up to us
-to find what patterns are coded in our heads and is up to us to "upgrade" ourselves to 
-better people. So the important thing to do is to determine, where my communication and 
-emotional patterns came from. Identify them, communicate them, and get rid of those that you 
-don't want. 
+Parents undoubtedly have a significant impact on our relationships in adult life, which can be both positive and negative. As I like to say, parents can't mess up their children completely. It's up to us to identify the patterns we've internalized and "upgrade" ourselves to become better people. Therefore, it's essential to determine where our communication and emotional patterns originated, communicate them, and get rid of those we don't want.
 
-We will discuss two archetypes. The arguing one and the passive-aggressive one. Both
-are not great. One needs to get more constructive with arguing to bring something positive
-and the other one needs to learn how to express his emotions. Create a safe bridge in your 
-relationship where you can communicate your emotions within a safe space.
+There are two archetypes we will discuss: the arguing one and the passive-aggressive one, and both are not ideal. One needs to learn how to constructively argue to bring something positive, and the other one needs to learn how to express their emotions. Create a safe space in your relationship where you can communicate your emotions openly.
 
-Figure out what you are searching for in a partner. Is it something that will compensate for the 
-areas, where you are not confident enough? I once also heard: "Create a list of what you 
-are searching for in your partner and become that person."
+Figure out what you're searching for in a partner. Is it something that will compensate for the areas where you lack confidence? I once heard the advice, "Create a list of what you are searching for in your partner and become that person."
 
-You have to watch for a trap in your relationship, that you might have a big connection 
-to someone in your family. This may cause a weak point in the connection with your partner.
-Don't include your parents in an argument. Don't allow your parents to tell you what your 
-relationship should look like. It can lead to serious problems. Do not be afraid to tell
-that the connection is causing this and that and you are not comfortable with it.
-The relationship is created by two people and no one should dictate how you should have it.
+Be wary of a trap in your relationship where you may have a strong connection to someone in your family that can cause a weak point in your connection with your partner. Don't include your parents in an argument, and don't allow them to tell you what your relationship should look like. This can lead to serious problems. Don't be afraid to tell them that their involvement is causing discomfort. The relationship is created by two people, and no one should dictate how you should have it.
 
-There was introduced a great concept of how we should treat our kids. When they are young,
-keep them close, hug them, and protect them. And as they grow older, release the hug a bit. Let 
-them get their burns and welcome them if they need help. And as they become adults, wait
-with their hands spread. Appreciate the time when they come to you. Hug them and then 
-let them build their life and family. It will hurt, but it is your job and you have to be strong.
+There is a great concept of how we should treat our kids: when they are young, keep them close, hug them, and protect them. As they grow older, release the hug a bit and let them experience life's lessons. When they become adults, welcome them with open arms and appreciate the time when they come to you. Hug them and then let them build their life and family. It may be painful, but it's your job as a parent to be strong.
 
 ### What to ask
 
-1. How often do you take advice from your parents?
-2. When was the last time you attacked your partner that they behave like their parents?
-3. Do you talk about your intimate life with your parents?
-4. Why and how often are you afraid of what they will tell about your partner?
+1. How often do you seek advice from your parents?
+1. When was the last time you criticized your partner for acting like their parents?
+1. Do you discuss your intimate life with your parents?
+1. Why are you afraid of what your parents may say about your partner, and how often does this fear occur?
 
 ## Always positive
 
-In recent studies were found, that we argue mostly because of these three reasons:
-1. Haughtiness: This means that our partner is making fools of us. Dehonests us or makes fun of us. He thinks that he is something better.
-2. Possessiveness: Too much jealousy or dependence. This can be shown if our partner wants too much attention or is too jealous.
-3. Rejection: We feel like our partner is rejecting us. He doesn't respond to our emotions and feelings and lets us deal with them. Or we can have the feeling that if we would not write, he would not write as well.
+Recent studies have found that we argue mostly for three reasons:
 
-Even if we think that the conflicts in the relationship are not healthy, they are.
-So don't be afraid to say that we need to talk about our relationship. It is even a good practice to
-talk about it on a monthly basis. Create a list of things that you need to discuss with your spouse
-and talk about it.
+1. Arrogance: This means that our partner belittles us, is dishonest, or makes fun of us, and thinks they are superior to us.
+1. Possessiveness: This can be shown if our partner is overly jealous or dependent on us, demanding too much attention.
+1. Rejection: We feel that our partner is rejecting us by not responding to our emotions and feelings, leaving us to deal with them alone. We may feel that they wouldn't write to us if we didn't write to them first.
+Even though we may not think that conflicts in a relationship are healthy, they can be. So don't be afraid to say that you need to talk about your relationship. It is even a good practice to have a monthly check-in with your spouse and create a list of things that you need to discuss.
 
-You have the right to your feelings and you have the right to share them. Find a safe way how to do that.
-It is OK to feel not well, not loved, too criticized or to feel that you are not going where you should
-and where you agreed that you will go. Open this topic. Do not be afraid. Learn how to have
-unconditional positive respect.
+You have the right to your feelings and to share them. Find a safe way to do so. It is okay to feel unwell, unloved, criticized, or off-track from where you agreed to be going. Open up about these feelings. Don't be afraid. Learn how to have unconditional positive regard.
 
-Don't forget that each individual sees life through his eyes, his emotions, and his experience.
-There is no truth in the relationship, just a different view of that situation. And the hard problems
-don't have simple solutions. 
+Remember that each individual sees life through their own eyes, emotions, and experiences. There is no one truth in a relationship, just different perspectives. Hard problems don't have simple solutions.
 
-### What to ask
+### Questions to ask:
 
-1. What are the topics that you argue about? 
-2. Do you think that arguing is good for a relationship?
-3. Is there some space where it is better for you to argue? 
-4. Are you afraid of arguments because you are afraid of the breakup? 
+1. What are the topics that you tend to argue about in your relationship?
+1. Do you think that arguing is beneficial for a relationship in some ways?
+1. Is there a particular space or time that feels more conducive to having arguments?
+1. Are you afraid of arguments because you fear that they might lead to a breakup?
 
 
 ## The relationship itself
 
-The "toxic" relationship. I would rather say, not healthy relationships are created when 
-at least one of the relationship needs is not fulfilled. One of the partners feels 
-the threat or even danger from the other one. Most likely, the relationship is 
-suffering from bad communication or continuous conflicts that are not resolved or healed properly.
-We can also find a lack of true love and emotional intimacy.
+The concept of a "toxic" relationship is more accurately described as an unhealthy relationship, which arises when at least one partner's needs are not being met. This can lead to one partner feeling threatened or even endangered by the other. Often, bad communication and unresolved conflicts are the culprits, along with a lack of true love and emotional intimacy.
 
-The eight things that we are searching for in a relationship:
-1. Safety: We have to know that the relationship is a safe space to be in and to grow in. That we can feel protected and respected. 
-2. Appreciation: We need to be appreciated for what we are, with all our insecurities. We have to believe and expect, that everything the other does has a purpose and meaning for him and we need to try to understand the meaning.
-3. Acceptance: We have to be such a partner, that the other one can use as a shield and can care about us. We also need to feel cared about and respected.
-4. Reciprocity: We can understand the things that the other ones are living. That means that if the other one is having a problem with some situation in life, we already know that situation and we can relate to each other. A great example is a common trauma.
-5. Self-definition: We have to define ourselves in the relationship. We have to have space to be ourselves, do what we love and we have to be different. This difference has to be accepted and loved.
-6. Couse reaction: We have to have the ability to change the other's perspective and thoughts. Not in a manipulative way. We have to see and know that we can change our perspective and that we can cause some emotions. We also have to have the ability to spot the difference after our actions.
-7. Show of love: There are 5 languages of love. Everyone is receiving and gives love differently. Hugs, gifts, words. We have to catch such an attempt to reach for our heart and we have to learn to give it differently.
-8. Initiative: Both people in a relationship have to show initiative for something. If someone is feeling that just him is doing all the things, he will burn out. Try to initiate anything from time to time.
+There are eight essential elements that we should look for in a healthy relationship:
 
-We have to take care of our relationship and if we can find that four riders of the apocalypse are present.
-1. Critics,
-2. contempt,
-3. defense,
-4. disconnection.
+1. Safety: A relationship must be a safe space in which to grow and thrive, where both partners feel protected and respected.
+1. Appreciation: Each partner should feel appreciated for who they are, with all their insecurities, and their actions should be understood and respected.
+1. Acceptance: Both partners should be able to use the relationship as a shield and care for each other, feeling respected and cared for.
+1. Reciprocity: Each partner should be able to understand the other's experiences, relate to them, and provide support. Common trauma is an example.
+1. Self-definition: Partners should have space to be themselves, pursue their passions, and be accepted and loved for their differences.
+1. Causal reaction: Partners should be able to change each other's perspectives without manipulating, and recognize the effects of their actions.
+1. Love language: Partners should recognize and respect each other's preferred love language, whether through physical touch, gifts, or words of affirmation.
+1. Initiative: Both partners should take initiative in the relationship, rather than one person feeling like they are doing everything.
 
-When those are present, we are likely to be separated. It is OK if we find them in an argument from
-time to time. Nobody is able to hold himself when we pull the right strings which the other one 
-definitely knows. If we realize that they are present, stop, take a minute, search for which need is not 
-fulfilled, and work on that.
+To maintain a healthy relationship, we must be aware of the four "horsemen of the apocalypse": criticism, contempt, defensiveness, and disconnection. When these arise, we need to take a step back, identify the unmet need, and work on it together.
 
-### What to ask
+### Here are some questions to consider:
 
 1. Do you feel lonely in your current relationship?
-2. Did you feel this in previous relationships?
-3. Do you fear that your partner will leave you?
-4. What is the tabu in your relationship?
-
-
-## Constant therapy
-
-This is about the therapy itself. We tend to tell the spouse to go visit a therapist.
-It seems that in the first few sessions, it is better but after a few years, we are still there.
-We have to find maybe someone else or stop because it is not bringing anything positive.
-
-We also have to look into our relationship. Are visiting therapy, to just tell 
-someone that we pay about our feelings so we don't have to tell them at home? 
-It can be effective, but not in the long term.
+1. Have you experienced loneliness in past relationships?
+1. Are you afraid that your partner will leave you?
+1. What is a taboo topic in your relationship?
+1. When it comes to therapy, we should evaluate whether it is effective for us and our relationship. Sometimes, we may need to see a different therapist or discontinue therapy if it is not yielding positive results. It's also important to reflect on why we are seeking therapy and whether we are using it as a way to avoid sharing our feelings with our partner in the long term.
 
 
 
