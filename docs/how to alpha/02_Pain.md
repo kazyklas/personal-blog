@@ -2,7 +2,6 @@
 sidebar_position: 2
 ---
 
-
 # Pain
 
 Pain is a distressing feeling often caused by intense or damaging stimuli. It is an unpleasant sensory and emotional experience associated with, or resembling, actual or potential tissue damage.
