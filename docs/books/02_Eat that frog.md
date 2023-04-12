@@ -72,6 +72,13 @@ The book offers a number of strategies for how to "eat your frog," or tackle you
     - D it can be delegated to someone else.
     - E is not relevant to anyone.
 
+9. Learn to say NO” to the tasks that is not vital to me in this time. Say it early and say it often.
+
+10. To starting something new you have to stop doing something old.
+
+11. Procrastinate on purpose.
+
+
 ### Consider the consequences
 
 Accurately compute what you should do or not. The task will determine what the frog is. 
@@ -86,19 +93,6 @@ Long term perspective is the highest factor. Motivation requires motive and that
 1. What are the biggest frogs to do biggest impact?
 2. What can I do to really make the difference. (The only me)
 3. What this frog is for me?
-
-
-
-
-“**Learn to say NO” to the tasks that is not vital to me in this time.**
-
-Say it early and say it often.
-
-**To starting something new you have to stop doing something old.**
-
-**Procrastinate on purpose.** Review the duties and tasks without the loss and
-
-Then procrastinate on them.
 
 
 ## Answer to yourself this
