@@ -55,12 +55,17 @@ This book is really something special that all boys and men should read. I know 
 
 ## Working with polarity and energy
 
-1. **Your attraction to the feminine is inevitable.** 
-2. **Choose a woman who is your complementary opposite.**
-3. **Know what is important in your woman.**
-4. **You will often want more than one woman.**
-5. **Young women offer you a special energy.**
-6. **Each woman has a temperature that can heal or irritate you.**
+1. **Your attraction to the feminine is inevitable.** You as a masculine man, you will be always attracted to the feminine energy, because you need it to be a better and masculine man. You will always attract the women with the oposite energy. The more masculine, the more feminine energy you will attract. The more feminine energy you will have within yourself, the more masculine women you will attract.
+
+2. **Choose a woman who is your complementary opposite.** Understand your energy and learn how to be floating in the energy of your spouse. If you will find a women with a different energy with yours, it will not work out. You will see her as more chaotic and laying if you have more feminine energy. But if you are rally masculine, she will inspire you and heal you better with this kind of energy.
+
+3. **Know what is important in your woman.** Find out what you want from your woman, what feminine traits you want to find in her. Answer this to yourself. If it is her power for caring or her ability to dress and look pretty.
+
+4. **You will often want more than one woman.** There will always be more girls in the room. You have to learn to be faithful and to accept the energy of other women. You don't need to have anything sexual with them. They can charge you in different ways. Accept the energy and transfer it into the actions.
+
+5. **Young women offer you a special energy.** As well as the older women. The young are more energetic and pretty, but the older ones are smart and peaceful. They mostlikely learned their feminine energy and can work it much better. 
+
+6. **Each woman has a temperature that can heal or irritate you.** That is the ultimate power of a woman. She can inspire you and heal you. But she also can irritate you and destroy your masculine energy so you will become a version that is silent and just tries to survive in a relationship.
 
 ## What woman really want
 
