@@ -39,18 +39,23 @@ This book is really something special that all boys and men should read. I know 
 
 ## Dealing with woman
 
-1. **Woman are not liars.**
-2. **Praise her.**
-3. **Tolerating her leads to resenting her.**
-4. **Don't analyze your woman.**
-5. **Don't suggest that a woman fix her own emotional problems.**
-6. **Stay with her intensity - to a point.**
-7. **Don't force the femine to make decission.**
+1. **Woman are not liars.** You would say that when you are listening to women, she will always switch the answer. That is because she answers the question with what she feels right now. That means that one day you can hear that she loves you, the other day she will tell you that she hates you. They are driven with emotions more and they respond to them more than to the rational thoughts. 
+
+2. **Praise her.** Man grows by challenge, the women grows by appreciation. Praise her for all the things you want from her and the ones that you love about her. Do not respond negatively to the action you want to happen again. Learn to notice small changes and compliment on those. Maybe the hair is somehow different, or the nails, compliment on that.
+
+3. **Tolerating her leads to resenting her.** In a relationship, you should never tolerate. You should always respect, you are on the same level, if you start tolerate, you will take apprehend and that will build to the resentment of both. Accept her, you chose her, you deal with her. But to some point, sometimes women have too much women energy that you can't handle, then you should try find someone else.
+
+4. **Don't analyze your woman.** Do not try to analyze and solve the problem. She doesn't need that, she needs to talk herself out of it. Listen, acnowledge and offer help or solutions. She will tell you if she wants it or not. Then listen and ask a good questions. If you try to analyze her, you will become in the circle that you can't never understand, you don't have such an emotional depth.
+
+5. **Don't suggest that a woman fix her own emotional problems.** The emotions that the women have is a storm and she will never figure out why she feels the way she may feel. Have on mind the cycle, the hunger and then try to figure out the problem. Teach her to lover the edges and how to express her emotions to you with love and open heart. 
+
+6. **Stay with her intensity - to a point.** As mentioned above, girls are a storm, beautiful storm, but sometimes, the storm tear down a lot of things, and when you repair them and another storm will break it. You will get tired of it and you will reach the point, when you can't handle the storm anymore and you should move to the less stormy country.
+
+7. **Don't force the femine to make decission.** This translates to leading the femine energy. If the girl can't decide, as they have a real issue with this, just decide for them, lead the way, take the action with confidence. If the way will be wrong or you end up badly. You can handle it thanks to your leading abilities. 
 
 ## Working with polarity and energy
 
-
-1. **Your attraction to the feminine is inevitable.**
+1. **Your attraction to the feminine is inevitable.** 
 2. **Choose a woman who is your complementary opposite.**
 3. **Know what is important in your woman.**
 4. **You will often want more than one woman.**
