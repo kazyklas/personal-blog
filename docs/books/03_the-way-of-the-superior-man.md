@@ -85,13 +85,13 @@ This book is really something special that all boys and men should read. I know 
 
 1. **You are always searching for freedom.**
 2. **Own your darkest desires.**
-3. **She wants the killer in you. **
+3. **She wants the killer in you.**
 4. **She needs your consciousness to match her energy.**
 
 ## Feminine attractivness
 
 1. **The feminine is abundant.**
 2. **Allow older women their magic.**
-3. **Turn your lust into gifts. **
+3. **Turn your lust into gifts.**
 4. **Never allow your desire to become suppressed or depolarized.**
-5. **Use her attractiveness as a slingshot through appearance. **
+5. **Use her attractiveness as a slingshot through appearance.**
