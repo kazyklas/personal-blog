@@ -69,12 +69,17 @@ This book is really something special that all boys and men should read. I know 
 
 ## What woman really want
 
-1. **Choose a woman who chooses you.**
-2. **What she wants is not what she says.**
-3. **Her complaint is conten-free.**
-4. **She doesn't reallyu want to be number one.**
-5. **Your excellent track record is meaningless to her.**
-6. **She wants to relax in the demonstration of your directions.</strong
+1. **Choose a woman who chooses you.** If you choose a woman, who doesn't chose you, she will never fully trust you. You should determine if she really wants you, or if she is playing hard to get. But if she doesn't want you, immediately stop trying, it will only lead to disappointment of both of you. 
+
+2. **What she wants is not what she says.** If you will listen to a woman complaining and saying what she wants. It may not be the thing she really wants. If she tells something that you should do, she may be just testing if your are weak enough to do it to please her. Be careful, women often test your boundaries and they will shit-test you. 
+
+3. **Her complaint is content-free.** If she is complaining about something, it might just be some bells ringing, that you should somehow return to your purpose, to return to your frame. She always wants a masculine man beside her. The complaint often doesn't tell you exactly what you should do or the steps. They even might be wrong, if she tells you them.
+
+4. **She doesn't really want to be number one.** You should always have your higher purpose in mind. And you should not do the things to make her happy and number one. She wants you to have the purpose and she will test, how much you want to pursue it.
+
+5. **Your excellent track record is meaningless to her.** It doesn't make any sense to her. The feminine energy doesn't take records or taking the history of how you behaved for last 10 years, but they will consider the exact moment, how you made them feel. 
+
+6. **She wants to relax in the demonstration of your directions.** The woman has too much stress that they can handle. You have to lead them with the direction and provide the hideout behind you. Also, the best relaxation that the woman can have is in your masculine hand providing her with love.
 
 ## Your dark side
 
