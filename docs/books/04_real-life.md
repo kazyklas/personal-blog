@@ -78,6 +78,7 @@ just to please someone else. Tell them that you don't want to do it, that it is 
 be strict and resentful. Again, create a border and respect it. Find the people that respect it as well and 
 stick to them. Friends or people that doesn't respect you and your borders doesn't deserve you in the first place.
 
+
 ## Acknowledge and find your needs
 
 Maybe this chapter should be as the first one as a lot of things depend on this. 
@@ -104,6 +105,57 @@ And for better navigation in the needs, here is a list of the from the book and 
 3. Aesthetic needs - appreciation and search for beauty, balance, form. Always in search never in reach.
 4. Cognitive needs - knowledge and understanding, curiosity, exploration, need for meaning and predictability.
 5. Self-worth - knowing or feeling that you are a good person who deserves to be treated with respect
-6. Love and beeing a part of something
+6. Love and being a part of something
 7. Security - clothing and shelter for body warmth and protection.
-8. Physical needs - food, wate, oxygen, activity, or sensory and motor stimulation, including sex, physical exercise, and rest.
+8. Physical needs - food, water, oxygen, activity, or sensory and motor stimulation, including sex, physical exercise, and rest.
+
+
+## Be kinder and be more human
+
+These times are run by social media, where everybody is posting their beautiful life.
+No one has any flaws, everything and everyone is perfect. So you try that as well.
+You are trying to be better and you are taking the acknowledgement of others as a drug.
+This can be good, but there is the other side of the coin and that in the long run,
+it is not perfect.
+
+Try to answer these questions and be as honest as you can, maybe you will find 
+places, where you are playing some roles and where you are not being authentic: 
+
+1. When was the last time you admitted a mistake and be proud of it? 
+2. What is it in your life that you don't appreciate?
+3. Who is the one that you would not like to think something bad about you?
+4. What are your weak spots?
+5. How do you talk about them?
+6. What is it that you take too much personally when it rises up in a conversation?
+7. What is it that make you likable for others?
+8. How should the real male/female behave? 
+9. What is the reason that might cause someone to dislike you?
+10. What is it that you definitely will not do in front of your parents?
+
+On how to be more kind, start from your inner voice. Maybe you are thinking that being hard 
+on yourself is the key for the better performance. You are wrong. Try to exchange the inner thoughts
+from the negative attitude to the positive. Be kind to yourself. Know what is good for you and what is not.
+Acknowledge your flaws, do not try to hide them. The path to real and better life is from being 
+authentic, from knowing yourself and from being kind to others and to yourself.
+
+
+## Live in the present
+
+This chapter is really great and it reflects the problem of today's society.
+We are living fast, we are trying to be everywhere and most importantly, we are trying to get a better life in the future.
+This is the problem, we are having the perfect life right now. If we are saying things like,
+after the kids will leave the house, after I graduate and everything that is somehow conditioned will stay the same.
+Because our future is the perfect picture of our present. If the present is perfect and we can enjoy it as it is,
+we are going to have a better future that we can enjoy as well.
+
+Main thing that we should learn from living in the present and how to do it is to learn how 
+to stop in the moment. Deep heavy inhale. Stop. Scan your body, scan your feelings and emotions.
+Make the most of the present situation, even though it can be bad. Maybe it is not what you hoped for, but 
+from every situation we are able to learn, we are able to to look at it from the different angle and see the bright side.
+
+The other issue that we are casting on ourselves is that we are having the expectations. We expect someone or something
+to change, or to make us feel somehow that we want to feel. But the only thing how we can live better life is to get rid 
+of expectations or communicate them properly. If we don't, we are just casting pressure on everyone around us and ourselves as well.
+**Only when we allow ourselves to surrender the perfect imagination, only then we are able to live with more ease.**
+
+**Happiness is equal to reality without the expectations.**
