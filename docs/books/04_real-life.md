@@ -159,3 +159,25 @@ of expectations or communicate them properly. If we don't, we are just casting p
 **Only when we allow ourselves to surrender the perfect imagination, only then we are able to live with more ease.**
 
 **Happiness is equal to reality without the expectations.**
+
+
+## Get the fulfilled life, not just impressive style
+
+What we need or want is strongly influenced by the social media and our surroundings.
+The marketing companies are telling us what we need, want and desire and we adopt their 
+thoughts and make it our own and we don't even know about it. The defense against this
+is really hard, as we are hardwired to fit in order to survive. And as we are going through
+life, we are changing our style in order to fit into groups that we are part of. Maybe you 
+are thinking that you are above this, that you are not slave of a marketing companies, huge
+brands and so on, that you are good enough to with second hand clothes batik t-shirt and 
+converse shoes. Well you are part of that particular group as well and you are adopting their style.
+
+What you should get from this is that you should be very conscious about who do you surround yourself with.
+Those people will most likely influence you. And as always, the energy that you are emitting will 
+attract people with the same energy. Your relationships will be perfect mirror of yourself.
+So this implicates that you can change your energy and your style and attract exactly what you want.
+
+How to test what you really want. Make a list of 101 things that you want. Whatever it can be.
+Have a coffee in some coffee shop, travel somewhere, buy new shoes, buy that new laptop.
+Monitor yourself while you are writing those things, do you feel the enjoyment, are those things yours
+or did you get them from the social media, surroundings or different people?
