@@ -181,3 +181,28 @@ How to test what you really want. Make a list of 101 things that you want. Whate
 Have a coffee in some coffee shop, travel somewhere, buy new shoes, buy that new laptop.
 Monitor yourself while you are writing those things, do you feel the enjoyment, are those things yours
 or did you get them from the social media, surroundings or different people?
+
+## Be present and enjoy the details
+
+In everyday life, we are missing the importance of being in the exact moment.
+We tend to be in the future living with anxiety or we tend to be in the past punishing ourselves 
+for the things that we done or reliving the good or the bad things that happen.
+But we are not living in the future or in the past, we are living in now.
+Being in the "right now" moment can be hard and it needs to be practiced.
+
+If we will practice this skill then we can enjoy the little details. The details that are 
+soo important in our relationships, because that is what a great relationship has.
+A lot of details from day to day. When you buy flowers, or just make a nice gesture as 
+complimenting the looks, the smile or active listens and explore your partner.
+But be careful, expecting those details is not healthy as everyone has different level of
+detail awareness and expecting your partner to see every detail can lead to disappointments.
+
+How you can try to learn to enjoy the little things:
+
+1. Name your focus: If you say, what you are now focusing on you can trick your brain to 
+really start to work on that. 
+1. Start with small steps: Your focus needs training. You may do the mistake that you set 
+enormous goal for yourself. Start with small steps, write a sentence, not a book.
+1. Feel more: When you are doing usual things, focus on your senses. If you are writing, 
+listen to the keyboard. If you are playing with kids, focus on the smiles and sparkling eyes.
+
